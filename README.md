@@ -1,6 +1,6 @@
 # 彩花猫娘ちゃん Ayaka Neko-chan 🌸🐱 あやかねこちゃん
 
-![](AiImages/f12263d6-19e8-419e-8a95-58a96b2ece27.png?raw=true)
+![](AiImages/ChatGPT%20Image%20Dec%2015%2C%202025%2C%2007_06_20%20PM.png?raw=true)
 
 ---
 
